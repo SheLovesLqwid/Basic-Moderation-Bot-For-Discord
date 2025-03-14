@@ -69,4 +69,4 @@ Free to use and modify!
 ---
 
 ## **📢 Need Help?**  
-Join our **[Discord Server](https://discord.gg/uzVkdfK7Qm)** for support! 🚀  
+Join our **[Discord Server](https://discord.gg/4W9a9ynbuP)** for support! 🚀  
